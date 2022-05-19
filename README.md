@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dhziin
-- 💻
+- 💻 gamer
 - segue no insta....@miro_arts2
 - 🎨 desenhista 
 - ⚽ futebolistico
