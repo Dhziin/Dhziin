@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Dhziin
 - 💻 gamer
-- segue no insta....@miro_arts2
+- segue no insta....@miroo_arts2
 - 🎨 desenhista 
 - ⚽ futebolistico
 - 🇨🇴 joy soy colombiano
